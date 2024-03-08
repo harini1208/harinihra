@@ -1,1 +1,1 @@
-# harinihra
+# HariniHRA
